@@ -1,4 +1,10 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Chiiwara&color=d3caed&style=for-the-badge&label=𑄝੭)
+<p align="center"> 
+ ALL ART BY AV EVERYONE NEEDS TO SEE THIS I WANNA MAKE AN ART OF THEM SO BAD
+<p align="center"> 
+ <img width=500" alt="1000005424" src="https://github.com/user-attachments/assets/84eabae8-daaf-48f7-bb2e-89277dc996ac" />
+<img width="500" alt="1000005423" src="https://github.com/user-attachments/assets/436e680e-8a48-4c8d-bfc5-8b80b55190fa" />
+<img width="500" alt="1000005422" src="https://github.com/user-attachments/assets/7ba2d149-6fc1-4cc4-8b3c-7ca02c8ad3e3" />
  <p align="center"> 
  ALL ART BY LUVALI !! I LOVE THEIR ART SM
   <p align="center"> 
