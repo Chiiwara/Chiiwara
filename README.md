@@ -1,4 +1,9 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Chiiwara&color=d3caed&style=for-the-badge&label=𑄝੭)
+<p align="center">
+ MY ART AND MY OC!!
+<p align="center">
+ <img width="300" alt="1000005453" src="https://github.com/user-attachments/assets/caaabbfc-0045-4f1f-95db-6a73e7c5db77" />
+<img width="300" alt="1000005449" src="https://github.com/user-attachments/assets/4b80cac2-bcc7-434b-8edf-d2db66ec01f2" />
 <p align="center"> 
  ALL ART BY AV EVERYONE NEEDS TO SEE THIS I WANNA MAKE AN ART OF THEM SO BAD
 <p align="center"> 
