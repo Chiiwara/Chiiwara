@@ -3,7 +3,7 @@
  MY ART AND MY OC!! Pharmacist " Pharm " or " Charm " 
 <p align="center">
  <img width="500" alt="1000005453" src="https://github.com/user-attachments/assets/caaabbfc-0045-4f1f-95db-6a73e7c5db77" />
-<img width="300" alt="1000005449" src="https://github.com/user-attachments/assets/4b80cac2-bcc7-434b-8edf-d2db66ec01f2" />
+<img width="300" alt="1000005454" src="https://github.com/user-attachments/assets/c930d20d-f185-458d-9d22-9d7b00880481" />
 <p align="center"> 
  ALL ART BY AV EVERYONE NEEDS TO SEE THIS I WANNA MAKE AN ART OF THEM SO BAD
 <p align="center"> 
