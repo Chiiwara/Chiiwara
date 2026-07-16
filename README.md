@@ -4,8 +4,8 @@
  <p align="center">
 <img width="500" alt="1000005561" src="https://github.com/user-attachments/assets/b199f660-3d60-4ec9-8066-66fd7d7c7ffd" /> 
 <p align="center">
- <img width="400" alt="1000990624" src="https://github.com/user-attachments/assets/9520b462-b6c5-426c-947d-3d9c3a462855" />
- <img width="500" alt="1000005453" src="https://github.com/user-attachments/assets/caaabbfc-0045-4f1f-95db-6a73e7c5db77" />
+<img width="500" height="2048" alt="1000005566" src="https://github.com/user-attachments/assets/6ac2f865-27b8-41ae-8ef7-4d6f3cf52e65" />
+<img width="500" alt="1000005567" src="https://github.com/user-attachments/assets/f23f6fe6-f21f-44df-9ac1-7896c90e8382" />
 <p align="center"> 
  ALL ART BY AV EVERYONE NEEDS TO SEE THIS I WANNA MAKE AN ART OF THEM SO BAD
 <p align="center"> 
