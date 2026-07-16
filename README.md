@@ -1,6 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Chiiwara&color=d3caed&style=for-the-badge&label=𑄝੭)
 <p align="center">
- MY ART AND MY OC!! Pharmacist " Pharm " or " Charm "  She's a Polka dot cat black and white DO NOT COPY / INSPO body sheet wip
+ MY ART AND MY OC!! Pharmacist " Pharm " or " Charm "  She's a actually a bicolor cat not tuxedo or polkadot cat black and white DO NOT COPY / INSPO body sheet wip remake her:3
+ <p align="center">
+<img width="300" alt="1000005561" src="https://github.com/user-attachments/assets/b199f660-3d60-4ec9-8066-66fd7d7c7ffd" /> 
 <p align="center">
  <img width="400" alt="1000990624" src="https://github.com/user-attachments/assets/9520b462-b6c5-426c-947d-3d9c3a462855" />
  <img width="500" alt="1000005453" src="https://github.com/user-attachments/assets/caaabbfc-0045-4f1f-95db-6a73e7c5db77" />
