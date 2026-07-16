@@ -2,7 +2,7 @@
 <p align="center">
  MY ART AND MY OC!! HEADAGENT DAUGHTER Pharmacist " Pharm " or " Charm "  She's a actually a bicolor cat not tuxedo or polkadot cat black and white DO NOT COPY / INSPO body sheet wip
  <p align="center">
-<img width="500" alt="1000005572" src="https://github.com/user-attachments/assets/f2a1eff0-1b1a-40a0-81f9-c2fc48aae85d" />
+<img width="500" alt="1000005573" src="https://github.com/user-attachments/assets/7499866f-c80a-4141-89b9-8e908660da1b" />
 <p align="center">
  <img width="400" alt="1000005567" src="https://github.com/user-attachments/assets/f23f6fe6-f21f-44df-9ac1-7896c90e8382" />
 <img width="300" alt="1000005566" src="https://github.com/user-attachments/assets/6ac2f865-27b8-41ae-8ef7-4d6f3cf52e65" />
