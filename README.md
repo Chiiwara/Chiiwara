@@ -2,10 +2,10 @@
 <p align="center">
  MY ART AND MY OC!! Pharmacist " Pharm " or " Charm "  She's a actually a bicolor cat not tuxedo or polkadot cat black and white DO NOT COPY / INSPO body sheet wip remake her:3
  <p align="center">
-<img width="500" alt="1000005561" src="https://github.com/user-attachments/assets/b199f660-3d60-4ec9-8066-66fd7d7c7ffd" /> 
+<img width="300" alt="1000005561" src="https://github.com/user-attachments/assets/b199f660-3d60-4ec9-8066-66fd7d7c7ffd" /> 
 <p align="center">
-<img width="500" alt="1000005566" src="https://github.com/user-attachments/assets/6ac2f865-27b8-41ae-8ef7-4d6f3cf52e65" />
-<img width="500" alt="1000005567" src="https://github.com/user-attachments/assets/f23f6fe6-f21f-44df-9ac1-7896c90e8382" />
+ <img width="400" alt="1000005567" src="https://github.com/user-attachments/assets/f23f6fe6-f21f-44df-9ac1-7896c90e8382" />
+<img width="300" alt="1000005566" src="https://github.com/user-attachments/assets/6ac2f865-27b8-41ae-8ef7-4d6f3cf52e65" />
 <p align="center"> 
  ALL ART BY AV EVERYONE NEEDS TO SEE THIS I WANNA MAKE AN ART OF THEM SO BAD
 <p align="center"> 
