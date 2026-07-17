@@ -4,7 +4,6 @@
  <p align="center">
 <img width="500" alt="1000005573" src="https://github.com/user-attachments/assets/7499866f-c80a-4141-89b9-8e908660da1b" />
 <p align="center">
- <img width="400" alt="1000005567" src="https://github.com/user-attachments/assets/f23f6fe6-f21f-44df-9ac1-7896c90e8382" />
 <img width="300" alt="1000005566" src="https://github.com/user-attachments/assets/6ac2f865-27b8-41ae-8ef7-4d6f3cf52e65" />
 <p align="center"> 
  ALL ART BY AV EVERYONE NEEDS TO SEE THIS I WANNA MAKE AN ART OF THEM SO BAD
