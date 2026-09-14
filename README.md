@@ -18,7 +18,7 @@
 𝘼𝙍𝙏 𝘾𝙊𝙇𝙇𝙀𝘾𝙏𝙄𝙊𝙉</strong></a> ノ <a href="https://primacyarthia.atabook.org/" target="[M]"<strong>𝘼𝙏𝘼𝘽𝙊𝙊𝙆</strong></a> 
 <br/><br/>
  <img width="2763" height="2136" alt="Screenshot_2025-11-12-07-52-49-404_com miui gallery-edit" src="https://github.com/user-attachments/assets/bfb78dcf-b799-4292-be70-bd456b925328" />   
-𝘈𝘰𝘬𝘪 , 𝘝𝘦𝘵𝘩𝘦𝘳 , 𝘟𝘦𝘯𝘦 , 𝘔𝘪𝘬𝘰 , 𝘔𝘪𝘬𝘺𝘪𝘪 , 𝘒𝘶𝘳𝘰 , 𝘒𝘺𝘶 , 𝘓𝘦𝘮𝘰𝘯𝘪 , 𝘙𝘦𝘹 , 𝘐𝘳𝘦𝘯𝘦 , 𝘚𝘦𝘹𝘺 , 𝘑𝘰𝘴𝘩𝘶𝘢
+𝘈𝘰𝘬𝘪 , 𝘝𝘦𝘵𝘩𝘦𝘳 , 𝘟𝘦𝘯𝘦 , 𝘔𝘪𝘬𝘰 , 𝘔𝘪𝘬𝘺𝘪𝘪 , 𝘒𝘶𝘳𝘰 , 𝘒𝘺𝘶 , 𝘓𝘦𝘮𝘰𝘯𝘪 , 𝘙𝘦𝘹 , 𝘐𝘳𝘦𝘯𝘦 , 𝘚𝘦𝘹𝘺 , 𝘑𝘰𝘴𝘩𝘶𝘢 , 𝘔𝘦𝘪
           <br/><br/>
 ──── ୨୧ ────
       <br/><br/>    
