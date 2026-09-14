@@ -3,7 +3,7 @@
 <table border="0"> 
     <tr/>
       <td align="center" align="middle" width="32%">
-        <img width="500" alt="laWtVWDX" src="https://github.com/user-attachments/assets/3b1257ce-a444-4d76-9f52-a98f234232d7" />
+        <img width="400" alt="laWtVWDX" src="https://github.com/user-attachments/assets/3b1257ce-a444-4d76-9f52-a98f234232d7" />
   </td>
       <td align="center" valign="middle" width="10%">
         <p align="center"> ‎
