@@ -29,7 +29,9 @@
     </tr>
   </table>
 </div>
-<div align="center"> 
+<div align="center">
+        <p align="center"> ‎
+<img width="100" alt="Screenshot 2026-09-14 082722" src="https://github.com/user-attachments/assets/760bf791-42e8-49f9-884d-58be0e54b710" />
   ‎   <p align="center"> 
 𝐎𝐓𝐇𝐄𝐑 𝐒𝐎𝐍𝐀𝐒
      <p align="center"> 
