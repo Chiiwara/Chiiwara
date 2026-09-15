@@ -46,8 +46,10 @@
         <p align="center"> 
      <img width="128" alt="tumblr_8b089f072640ceab369adbe2bfac9b0f_d733d56c_540" src="https://github.com/user-attachments/assets/b84f08de-7bb6-4c84-81cc-00cb310fb2ad" />
           <img width="150" alt="221269" src="https://github.com/user-attachments/assets/b1c2f45a-0128-46a5-a901-affa4c1ecee4" />   │ 
-          <img width="100" alt="tumblr_cf37faa4c4e417e9367dd1467ab2e91b_050ee446_640" src="https://github.com/user-attachments/assets/eaee6a2b-2d56-4b02-9fbf-20abf4cafcb4" /> │               
+          <img width="100" alt="tumblr_cf37faa4c4e417e9367dd1467ab2e91b_050ee446_640" src="https://github.com/user-attachments/assets/eaee6a2b-2d56-4b02-9fbf-20abf4cafcb4" />
+<img width="100" alt="1000005984" src="https://github.com/user-attachments/assets/8b9edd78-13e9-4d94-b903-50f383cccd63" />│            
 <img width="100" alt="slothlo-pogranichnik" src="https://github.com/user-attachments/assets/c97e9d67-7d95-480b-8803-7c9b70d731c8" />
+<img width="100" alt="1000005983" src="https://github.com/user-attachments/assets/2a547cd2-fa2a-4983-8b78-0e24ad8b1156" />
     <p align="center"> 
  <video src="https://github.com/user-attachments/assets/98f2f5a6-fdb8-4105-8af6-81415f535c72">
     <p align="center"> 
