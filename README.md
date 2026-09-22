@@ -1,4 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=Chiiwara&color=ffb0be&style=for-the-badge&label=🕷)
+<p align="center">
+    My Sona's !!! 
+<p align="center">
+    <img width="700"alt="1000006046" src="https://github.com/user-attachments/assets/fe4932d9-562e-4fd3-a12c-6d2446c20ddf" />
 <div align="center">
 <table border="0"> 
     <tr/>
