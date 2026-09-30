@@ -1,8 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=Chiiwara&color=ffb0be&style=for-the-badge&label=🕷)
 <p align="center">
-    My Sona's !!! 
-<p align="center">
-    <img width="700"alt="1000006046" src="https://github.com/user-attachments/assets/fe4932d9-562e-4fd3-a12c-6d2446c20ddf" />
+    <img width="300"alt="1000006046" src="https://github.com/user-attachments/assets/fe4932d9-562e-4fd3-a12c-6d2446c20ddf" />
 <div align="center">
 <table border="0"> 
     <tr/>
@@ -25,6 +23,9 @@
 𝘔𝘺 𝘍𝘢𝘮𝘪𝘭𝘺 !! 𝘈𝘰𝘬𝘪 , 𝘝𝘦𝘵𝘩𝘦𝘳 , 𝘟𝘦𝘯𝘦 , 𝘔𝘪𝘬𝘰 , 𝘔𝘪𝘬𝘺𝘪𝘪 , 𝘒𝘶𝘳𝘰 , 𝘒𝘺𝘶 , 𝘓𝘦𝘮𝘰𝘯𝘪 , 𝘙𝘦𝘹 , 𝘐𝘳𝘦𝘯𝘦 , 𝘚𝘦𝘹𝘺 , 𝘑𝘰𝘴𝘩𝘶𝘢 , 𝘔𝘦𝘪 , 𝘒𝘢𝘰 , 𝘈𝘳𝘵𝘦𝘳𝘮𝘪𝘴 ( 𝘚𝘰𝘯 ) , 𝘒𝘦𝘷𝘺 ( 𝘕𝘦𝘱 )
           <br/><br/>
 ──── ୨୧ ────
+                <br/><br/>
+            <img width="500" alt="Untitled46_20260927095748" src="https://github.com/user-attachments/assets/620537e5-384d-4219-a885-128d4f53098e" />
+<img width="500" alt="Untitled140_20251227200043" src="https://github.com/user-attachments/assets/89654afd-4e02-441c-8122-b36335cedaa9" />
 ‎<br/><br/>
         </a>
       </td>
