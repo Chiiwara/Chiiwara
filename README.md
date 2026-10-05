@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=Chiiwara&color=ffb0be&style=for-the-badge&label=🕷)
 <p align="center">
     <img width="400" alt="JWAaqjHf" src="https://github.com/user-attachments/assets/75216d92-9cd5-4d30-87cf-f4970cb59acb" />
-<img width="400" alt="XSXwJgaK" src="https://github.com/user-attachments/assets/9ce95d71-e98e-478b-bd4c-4ab57bc8374c" />
+<img width="400" alt="1000006223" src="https://github.com/user-attachments/assets/9e765dbc-c54a-4eb8-9c30-ef8ddc9052c1" />
 <div align="center">
 <table border="0"> 
     <tr/>
