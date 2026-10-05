@@ -2,9 +2,6 @@
 <p align="center">
     <img width="400" alt="JWAaqjHf" src="https://github.com/user-attachments/assets/75216d92-9cd5-4d30-87cf-f4970cb59acb" />
 <img width="400" alt="XSXwJgaK" src="https://github.com/user-attachments/assets/9ce95d71-e98e-478b-bd4c-4ab57bc8374c" />
-<p align="center">
- <video src="https://github.com/user-attachments/assets/88d46837-628d-4a89-804f-9a525b925f50">
-    <p align="center">
 <div align="center">
 <table border="0"> 
     <tr/>
