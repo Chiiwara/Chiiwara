@@ -1,5 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷)
 <p align="center">
+    Non sharing + Heavy Selective Self x Optimus ノ Peoples i have accepted who like Optimus @skilkdollette (Hi oomfs if you saw this heh) + mostly comfortable mutuals ノ I dont like any other ships from Optimus ノ Kins and IRL are welcome !! 
+      <p align="center"> ‎
     <img width="700" alt="JWAaqjHf" src="https://github.com/user-attachments/assets/75216d92-9cd5-4d30-87cf-f4970cb59acb" />
        <p align="center"> ‎
     — Ruelia is actually not a human, she took the form of a human to disguise herself when she arrived on earth after the fallen of Cybertron ( This is an excuse because I cannot draw mech as much I want to draw them together ╯⁠︵⁠╰⁠, )
