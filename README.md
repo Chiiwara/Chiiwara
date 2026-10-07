@@ -1,19 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷)
-<p align="center">
-    They are so funny
-<p align="center">
-    <img width="346" height="768" alt="Screenshot_2026-10-07-17-38-47-965_com facebook orca" src="https://github.com/user-attachments/assets/3a68d56c-b3bc-48b7-9f80-18eb5f0979f6" />
-    <img width="346" height="768" alt="Screenshot_2026-10-07-17-38-41-649_com facebook orca" src="https://github.com/user-attachments/assets/03a61711-645e-471d-9751-98d2c6396afc" />
-<p align="center">
-    Non sharing + Heavy Selective Self x Optimus ノ Peoples i have accepted who like Optimus @skilkdollette (Hi oomfs if you saw this heh) + mostly comfortable mutuals ノ I dont like any other ships from Optimus ノ Kins and IRL are welcome !! 
+ <p align="center"> ‎
+    Non sharing + Heavy Selective Self x Optimus ノ Peoples i have accepted who like Optimus @skilkdollette + mostly comfortable mutuals ノ I dont like any other ships from Optimus ノ Kins and IRL are welcome !! 
       <p align="center"> ‎
     <img width="700" alt="JWAaqjHf" src="https://github.com/user-attachments/assets/75216d92-9cd5-4d30-87cf-f4970cb59acb" />
-       <p align="center"> ‎
-    — Ruelia is actually not a human, she took the form of a human to disguise herself when she arrived on earth after the fallen of Cybertron ( This is an excuse because I cannot draw mech as much I want to draw them together ╯⁠︵⁠╰⁠, )
-   <p align="center"> ‎
-— Her body is made of light she can transform into anything but she cannot be in one on one copy no matter how much she tried she has to be original on her own. 8 million years ago she was exiled on her home planet after asking for a blessing to be with Optimus forever as another species but she didn't know the history of her home plant despise other species to be connected with them her own people wanted to trap her or kill her but she managed to run away and started living with Optimus.
-   <p align="center"> ‎
-— but due to being exiled on her home plant and without a blessing to continue keeping her powers while being away her powers were very limited all she can do is transform into any and give optimus strength. She feeds on the sun the only alternative way.
           <p align="center"> ‎
 <img width="400" alt="1000006223" src="https://github.com/user-attachments/assets/9e765dbc-c54a-4eb8-9c30-ef8ddc9052c1" />
 <div align="center">
