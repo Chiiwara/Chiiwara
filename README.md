@@ -1,5 +1,10 @@
 ![](https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷)
 <p align="center">
+    They are so funny
+<p align="center">
+    <img width="346" height="768" alt="Screenshot_2026-10-07-17-38-47-965_com facebook orca" src="https://github.com/user-attachments/assets/3a68d56c-b3bc-48b7-9f80-18eb5f0979f6" />
+    <img width="346" height="768" alt="Screenshot_2026-10-07-17-38-41-649_com facebook orca" src="https://github.com/user-attachments/assets/03a61711-645e-471d-9751-98d2c6396afc" />
+<p align="center">
     Non sharing + Heavy Selective Self x Optimus ノ Peoples i have accepted who like Optimus @skilkdollette (Hi oomfs if you saw this heh) + mostly comfortable mutuals ノ I dont like any other ships from Optimus ノ Kins and IRL are welcome !! 
       <p align="center"> ‎
     <img width="700" alt="JWAaqjHf" src="https://github.com/user-attachments/assets/75216d92-9cd5-4d30-87cf-f4970cb59acb" />
