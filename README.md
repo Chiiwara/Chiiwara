@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷)
  <p align="center"> ‎
-    Non sharing + Heavy Selective Self x Optimus ノ Peoples i have accepted who like Optimus @skilkdollette + mostly comfortable mutuals ノ I dont like any other ships from Optimus ノ Kins and IRL are welcome !! 
+    Non sharing + Heavy Selective Self x Optimus ノ People i have accepted who like Optimus @skilkdollette + mostly comfortable mutuals ノ I dont like any other ships from Optimus
       <p align="center"> ‎
     <img width="700" alt="JWAaqjHf" src="https://github.com/user-attachments/assets/75216d92-9cd5-4d30-87cf-f4970cb59acb" />
           <p align="center"> ‎
