@@ -4,7 +4,7 @@
   <p align="center">
    I LOVE MY DARLING SM
   <p align="center">
-   <img width="800" height="1280" alt="1000006294" src="https://github.com/user-attachments/assets/98597369-c69c-4064-b9d0-ff3c25bc3b04" />
+   <img width="500" alt="1000006294" src="https://github.com/user-attachments/assets/98597369-c69c-4064-b9d0-ff3c25bc3b04" />
       <p align="center"> ‎
     <img width="700" alt="JWAaqjHf" src="https://github.com/user-attachments/assets/75216d92-9cd5-4d30-87cf-f4970cb59acb" />
           <p align="center"> ‎
