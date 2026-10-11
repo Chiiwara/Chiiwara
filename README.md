@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷)
  <p align="center"> ‎
-    Non sharing + Heavy Selective MEIRL x Optimus ノ People i have accepted who like Optimus @skilkdollette + mostly comfortable mutuals ノ I dont like any other ships from Optimus
+    Non sharing + Heavy Selective Me x Optimus ノ People i have accepted who like Optimus @skilkdollette + mostly comfortable mutuals ノ I dont like any other ships from Optimus
       <p align="center">
        I would love to yap about optimus character so much hes so selfless powerful embodiment of leadership gentle +++++++ im deeply emotionally attached to him hes saving my confidence to be better at myself, once i get my make up ill try to recreate ruelia after arthia wig. Also those who are confused Ruelia(IRL) , Glorizeda (Self Insert), Chiiwara (Persona)
     <p align="center">
