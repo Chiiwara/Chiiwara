@@ -1,6 +1,11 @@
 ![](https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷)
  <p align="center"> ‎
-    Non sharing + Heavy Selective Self x Optimus ノ People i have accepted who like Optimus @skilkdollette + mostly comfortable mutuals ノ I dont like any other ships from Optimus
+    Non sharing + Heavy Selective SelfInsert x Optimus ノ People i have accepted who like Optimus @skilkdollette + mostly comfortable mutuals ノ I dont like any other ships from Optimus
+      <p align="center">
+       I would love to yap about optimus character so much hes so selfless powerful embodiment of leadership gentle +++++++ im deeply emotionally attached to him hes saving my confidence to be better at myself 
+    <p align="center">
+     <img width="400" alt="72cf6eb431703a1af083ad46b9fde517" src="https://github.com/user-attachments/assets/f279290d-b57f-41ce-a651-4a43f5d343ff" />
+<img width="400" alt="7870979edb0e9a5a044cec312f7931d6" src="https://github.com/user-attachments/assets/a142f104-1972-4a50-b965-f18734f84c9b" />
   <p align="center">
    I LOVE MY DARLING SM
   <p align="center">
