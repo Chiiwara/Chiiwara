@@ -1,8 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷)
  <p align="center"> ‎
-    Non sharing + Heavy Selective Me x Optimus ノ People i have accepted who like Optimus @skilkdollette + mostly comfortable mutuals ノ I dont like any other ships from Optimus
+    Non sharing Me x Optimus ノ I dont like any other ships from Optimus ノ Bumblebee Mother
       <p align="center">
-       I would love to yap about optimus character so much hes so selfless powerful embodiment of leadership gentle +++++++ im deeply emotionally attached to him hes saving my confidence to be better at myself, once i get my make up ill try to recreate ruelia after arthia wig. Also those who are confused Ruelia(IRL) , Glorizeda (Self Insert), Chiiwara (Persona)
+       I would love to yap about optimus character so much hes so selfless powerful embodiment of leadership gentle +++++++ im deeply emotionally attached to him hes saving my confidence to be better at myself, once i get my make up ill try to recreate ruelia after arthia wig. Also those who are confused Ruelia(IRL/Self insert) , Glorizeda (Self Insert), Chiiwara (Persona)
        <p align="center">
         This headcanon omg I really do believe he is a jealous type but not in like possessive way or this morden tradition I like to imagine him he doesn't admit a lot of things especially through his teammates as their leader instead of saying it directly his body language his tone betrays him so much. I also think that it's more of protectiveness he is a prime it's kind of his nature to be a protector that made him a leader.For ruelia lore She has been one with his body for eons of years(asleep) after she was exiled on her planet and has no where to go but to Cybertron (ruelia enegry power is sunlight an alternative source from her home planet she can transfer that power to Optimus prime spark or energon to give him strength speed and agility) basically Optimus got used to being one with her for millions of years separation was something they both didn't like or not used to it once they arrive at earth that is where ruelia woke up there was some conflict and reflections of separation but they both managed at the end yet optimus cannot stand being away for too long or not in his sight Rueila Power is vulnerable once the deception knew about her species they will take her power and maybe even kill her  and she's not really a fighter Optimus does allow her to roam free with Cade/Sam to experience earth just not without him he's still very cautious especially when there's also bad humans
        <p align="center">
@@ -63,14 +63,15 @@
     <p align="center"> 
 𝐇𝐲𝐩𝐞𝐫 𝐒𝐡𝐚𝐫𝐞 │ 𝐇𝐞𝐚𝐯𝐲 𝐒𝐞𝐥𝐞𝐜𝐭𝐢𝐯𝐞 𝐒𝐡𝐚𝐫𝐢𝐧𝐠 │ 𝐍𝐨𝐧𝐒𝐡𝐚𝐫𝐢𝐧𝐠
       <p align="center"> 
-𝘔𝘪𝘨𝘶𝘦𝘭 𝘖'𝘏𝘢𝘳𝘢 ノ 𝘓𝘦𝘷𝘪 │ 𝘖𝘱𝘵𝘪𝘮𝘶𝘴 𝘗𝘳𝘪𝘮𝘦 ノ 𝘝𝘦𝘯𝘵𝘪&𝘈𝘳𝘵𝘩𝘪𝘢 │ 𝘗𝘳𝘰𝘨𝘢𝘯𝘪𝘤𝘬𝘯𝘪𝘬 ノ 𝘈𝘳𝘥𝘦𝘷𝘦𝘶𝘴
+𝘔𝘪𝘨𝘶𝘦𝘭 𝘖'𝘏𝘢𝘳𝘢 ノ 𝘓𝘦𝘷𝘪 │  𝘝𝘦𝘯𝘵𝘪&𝘈𝘳𝘵𝘩𝘪𝘢 │ 𝘗𝘳𝘰𝘨𝘢𝘯𝘪𝘤𝘬𝘯𝘪𝘬 ノ 𝘈𝘳𝘥𝘦𝘷𝘦𝘶𝘴 ノ 𝘖𝘱𝘵𝘪𝘮𝘶𝘴 𝘗𝘳𝘪𝘮𝘦 
         <p align="center"> 
      <img width="128" alt="tumblr_8b089f072640ceab369adbe2bfac9b0f_d733d56c_540" src="https://github.com/user-attachments/assets/b84f08de-7bb6-4c84-81cc-00cb310fb2ad" />
           <img width="150" alt="221269" src="https://github.com/user-attachments/assets/b1c2f45a-0128-46a5-a901-affa4c1ecee4" />   │ 
-          <img width="100" alt="tumblr_cf37faa4c4e417e9367dd1467ab2e91b_050ee446_640" src="https://github.com/user-attachments/assets/eaee6a2b-2d56-4b02-9fbf-20abf4cafcb4" />
 <img width="100" alt="1000005984" src="https://github.com/user-attachments/assets/8b9edd78-13e9-4d94-b903-50f383cccd63" />│            
 <img width="100" alt="slothlo-pogranichnik" src="https://github.com/user-attachments/assets/c97e9d67-7d95-480b-8803-7c9b70d731c8" />
 <img width="100" alt="1000005983" src="https://github.com/user-attachments/assets/2a547cd2-fa2a-4983-8b78-0e24ad8b1156" />
+          │ 
+          <img width="100" alt="tumblr_cf37faa4c4e417e9367dd1467ab2e91b_050ee446_640" src="https://github.com/user-attachments/assets/eaee6a2b-2d56-4b02-9fbf-20abf4cafcb4" />
     <p align="center"> 
  <video src="https://github.com/user-attachments/assets/98f2f5a6-fdb8-4105-8af6-81415f535c72">
     <p align="center"> 
