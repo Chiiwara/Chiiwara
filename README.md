@@ -70,7 +70,6 @@
 <img width="100" alt="1000005984" src="https://github.com/user-attachments/assets/8b9edd78-13e9-4d94-b903-50f383cccd63" />│            
 <img width="100" alt="slothlo-pogranichnik" src="https://github.com/user-attachments/assets/c97e9d67-7d95-480b-8803-7c9b70d731c8" />
 <img width="100" alt="1000005983" src="https://github.com/user-attachments/assets/2a547cd2-fa2a-4983-8b78-0e24ad8b1156" />
-          │ 
           <img width="100" alt="tumblr_cf37faa4c4e417e9367dd1467ab2e91b_050ee446_640" src="https://github.com/user-attachments/assets/eaee6a2b-2d56-4b02-9fbf-20abf4cafcb4" />
     <p align="center"> 
  <video src="https://github.com/user-attachments/assets/98f2f5a6-fdb8-4105-8af6-81415f535c72">
