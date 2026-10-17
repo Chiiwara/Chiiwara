@@ -2,7 +2,15 @@
  <p align="center"> ‎
     Non sharing Me x Optimus ノ I dont like any other ships from Optimus ノ Bumblebee Mother
       <p align="center">
-       I would love to yap about optimus character so much hes so selfless powerful embodiment of leadership gentle +++++++ im deeply emotionally attached to him hes saving my confidence to be better at myself, once i get my make up ill try to recreate ruelia after arthia wig. Also those who are confused Ruelia(IRL/Self insert) , Glorizeda (Self Insert), Chiiwara (Persona)
+       I would love to yap about optimus character so much hes so selfless powerful embodiment of leadership gentle +++++++ im deeply emotionally attached to him hes saving my confidence to be better at myself, once i get my make up ill try to recreate ruelia after arthia wig. Also those who are confused Ruelia(IRL/Self insert) , Glorizeda (Self Insert), Chiiwara (Personal 
+       <p align="center">
+        Top 20 Husband 1.Orion Pax 
+2.The Last Prime 3. Optimus Prime
+4. Leader of the Autobots
+5.Supreme Commander
+6.The Bearer of the Matrix of Leadership 7.The Hero of Cybertron 8.The Great Protector 9.Commander Prime 10.Nemesis Prime 11.Convoy 12.Star Convoy 13.Optimus Major 14.Data Clerk 084 15. Prime 16. Sentinel's Successor 17.Thirteen Prime Descendant 18.Thirteen Prime Descendant 19.Guardian of the Allspark 20.Cybertronian Knight
+        <p align="center">
+         <video src="https://github.com/user-attachments/assets/07ebc5c9-daf2-4f83-9d3c-397ad3d849ff"
        <p align="center">
         I think I'm too tall for Optimus 
        <p align="center">
