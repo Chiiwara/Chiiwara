@@ -4,6 +4,8 @@
       <p align="center">
        I would love to yap about optimus character so much im deeply emotionally attached to him hes saving my confidence to be better at myself, once i get my make up ill try to recreate ruelia after arthia wig. Also those who are confused Ruelia(IRL/Self insert) , Glorizeda (Self Insert), Chiiwara (Persona)
        <p align="center">
+        I know I'm a bayverse fan I know there's a lot of cons about the movie but I grew up with that movie but I personally don't think Optimus character got literally nuked there are some part yes but there's also other parts that makes it realistic for him to act especially with a lot of trauma. I do love Orion pax he's so silly and funny 
+       <p align="center">
         WHY I ABSOLUTELY ADORE OPTIMUS 
        <p align="center">
         1. He always puts everyone else before himself.
