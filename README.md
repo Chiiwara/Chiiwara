@@ -2,7 +2,7 @@
  <p align="center"> ‎
     Non sharing Me x Optimus ノ I dont like any other ships from Optimus ノ Bumblebee Mother
       <p align="center">
-       I would love to yap about optimus character so much hes so selfless powerful embodiment of leadership gentle +++++++ im deeply emotionally attached to him hes saving my confidence to be better at myself, once i get my make up ill try to recreate ruelia after arthia wig. Also those who are confused Ruelia(IRL/Self insert) , Glorizeda (Self Insert), Chiiwara (Personal 
+       I would love to yap about optimus character so much hes so selfless powerful embodiment of leadership gentle +++++++ im deeply emotionally attached to him hes saving my confidence to be better at myself, once i get my make up ill try to recreate ruelia after arthia wig. Also those who are confused Ruelia(IRL/Self insert) , Glorizeda (Self Insert), Chiiwara (Persona)
        <p align="center">
         Top 20 Husband 1.Orion Pax 
 2.The Last Prime 3. Optimus Prime
