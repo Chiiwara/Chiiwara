@@ -4,6 +4,59 @@
       <p align="center">
        I would love to yap about optimus character so much hes so selfless powerful embodiment of leadership gentle +++++++ im deeply emotionally attached to him hes saving my confidence to be better at myself, once i get my make up ill try to recreate ruelia after arthia wig. Also those who are confused Ruelia(IRL/Self insert) , Glorizeda (Self Insert), Chiiwara (Persona)
        <p align="center">
+        WHY I ABSOLUTELY ADORE OPTIMUS 
+       <p align="center">
+        1. He always puts everyone else before himself.
+2. He is the purest, most selfless soul in the entire universe
+3. He's a gaint and it makes me feel safe just by standing near him ( Ruelia lore )
+4. His voice is soo comforting I listen to Peter collins narrative story before ( We will miss you Peter Collins ) 
+5. He fights for every being freedom  "Freedom is the right of all sentient beings"
+6.He never gives up, no matter how bad things get, He didn't try to give hope when he had a chance to get back home. (transformers rise of the beast)
+7. He carries the weight of the entire world on his shoulders two worlds apparently earth and Cybertron each time earth is invaded with deceptions.
+8. He treats everyone with respect, no matter how small they are
+9.He is the definition of a true, protective leader I would absolutely would chose him as my leader
+10. He is physically massive, yet so incredibly gentle with smaller beings ( He literally hold the glasses without breaking it during 2007 and the way He held Tessa during lockdown attack )
+11. His heart is way too big for his own good
+12. He forgives people even when they don't deserve it ( He forgave cade after knowing his intentions towards him )
+13. He makes me want to be a better person every day ( Me )
+14. He stays calm and composed under extreme pressure
+15. He bleeds and breaks for the people he loves
+16. He is very powerful ( He 3v1 Deception on a whole forest if it wasn't to cover up Sam he would have end them already )
+17. He never abuses his power or acts arrogant
+18. He gives the absolute best advice
+19. He would willingly die just to keep the innocent safe too many sacrifices(Transformers 2007,Revenge of the Fallen,The Last Knight,Rise of the Beasts,Beast Hunters Predacons Rising)
+20.He absolutely loyal The thought of betrayal never cross his mind when he's certain about a choice
+21.He looks soo cool when he steps into combat or transforming 
+22. He feels like he could provide me warmth during the cold night (Ruelia lore 👀)
+23. He is completely honest and holds himself to high standards
+24. He believes in second chances and redemption ( Accepting drift even he was a deception )
+25. He shows that being strong doesn't mean you have to be cold
+26. He is the ultimate embodiment of hope and leadership AND freedom 
+27.He makes me soft just thinking about him
+28.His entire existence is dedicated to protecting life
+29. He stands tall against impossible odds and never backs down
+30. He carries deep sadness and trauma, but still chooses to be kind
+31. He trusts people even after being betrayed. (Bayverse many times after multiple autobot died he still chose to trust cade. He didn't even killed the one who slaughter ratchet)
+32.He makes  feel like me actually matter to him
+33. He's very devoted 
+34. He never asks for praise or rewards for what he does.( arrogant is out of his vocabulary )
+35. He knows how to lock in and be aware 
+36. He treats his squad like family, not just soldiers
+37. He is deeply emotional underneath all that heavy armor ( Protective and carries a lot of guilt and trauma )
+38. He embodies everything good left in the universe
+39.He protects the weak without a second thought
+40.He makes standing up for what's right look effortless
+41.He would betray his own kind for the sake of goodness ( Optimus refused Quintessa request to revive Cybertron is to kill earth )
+42.He stands by his core values no matter what it costs him ( He literally killed sentinel because he was destroying Earth )
+43. He deserves all the love and peace in the world. ( I wanna hug him so bad)
+44. He makes me feel protected just by existing.( I love big guys )
+45.He is simply the most noble, beautiful character ever created
+46.He is deeply wise
+47.His optics I would get lost into those rotating blue lights
+48.He represents the ultimate comfort character ( I love to make fluff scenario with him )
+49.He has the most soothing, grounding presence imaginable
+50.Even when he's pushed to his absolute breaking point he never becomes cruel ( Optimus mischaratization calling him a monster because of that one scene 🙄 )
+       <p align="center">
         Top 20 Husband 1.Orion Pax 
 2.The Last Prime 3. Optimus Prime
 4. Leader of the Autobots
