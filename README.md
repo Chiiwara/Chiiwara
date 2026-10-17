@@ -12,7 +12,7 @@
 4. His voice is soo comforting I listen to Peter collins narrative story before ( We will miss you Peter Collins ) 
 5. He fights for every being freedom  "Freedom is the right of all sentient beings"
 6.He never gives up, no matter how bad things get, He didn't try to give hope when he had a chance to get back home. (transformers rise of the beast)
-7. He carries the weight of the entire world on his shoulders two worlds apparently earth and Cybertron each time earth is invaded with deceptions.
+7. He carries the weight of the entire world on his shoulders two worlds apparently earth and Cybertron each time earth is invaded by deceptions.
 8. He treats everyone with respect, no matter how small they are
 9.He is the definition of a true, protective leader I would absolutely would chose him as my leader
 10. He is physically massive, yet so incredibly gentle with smaller beings ( He literally hold the glasses without breaking it during 2007 and the way He held Tessa during lockdown attack )
