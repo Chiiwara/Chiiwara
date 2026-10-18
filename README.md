@@ -1,6 +1,4 @@
 ![](https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷)
-   <p align="center"> 
-    <img width="200"alt="86cec286e786219fb50a71f3cf5ec8f0" src="https://github.com/user-attachments/assets/def6b764-3f91-491b-b475-125671a6f699" />
  <div align="center">
 <table border="0"> 
     <td align="center" align="middle" width="32%">
