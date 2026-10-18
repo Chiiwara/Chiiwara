@@ -1,4 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷)
+   <p align="center"> 
+    <img width="200"alt="86cec286e786219fb50a71f3cf5ec8f0" src="https://github.com/user-attachments/assets/def6b764-3f91-491b-b475-125671a6f699" />
  <div align="center">
 <table border="0"> 
     <td align="center" align="middle" width="32%">
@@ -78,6 +80,8 @@
      <img width="400" alt="72cf6eb431703a1af083ad46b9fde517" src="https://github.com/user-attachments/assets/f279290d-b57f-41ce-a651-4a43f5d343ff" />
   <br/><br/>
 <img width="400" alt="7870979edb0e9a5a044cec312f7931d6" src="https://github.com/user-attachments/assets/a142f104-1972-4a50-b965-f18734f84c9b" />
+              <br/><br/>
+       <img width="300" alt="ca6819cdd7cdd336e6f81a278ec71423" src="https://github.com/user-attachments/assets/03aa5c25-982a-4e91-ae13-39e3c8d3dcb1" />
    <br/><br/>
    <img width="500" alt="1000006294" src="https://github.com/user-attachments/assets/98597369-c69c-4064-b9d0-ff3c25bc3b04" />
       <br/><br/>
