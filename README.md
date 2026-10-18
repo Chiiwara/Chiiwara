@@ -1,8 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷)
- <p align="center"> ‎
-    Non sharing Me x Optimus ノ I dont like any other ships from Optimus ノ Bumblebee Mother
-      <p align="center">
-       I would love to yap about optimus character so much im deeply emotionally attached to him hes saving my confidence to be better at myself, once i get my make up ill try to recreate ruelia after arthia wig. Also those who are confused Ruelia(IRL/Self insert) , Glorizeda (Self Insert), Chiiwara (Persona)
+ <div align="center">
+<table border="0"> 
+    <td align="center" align="middle" width="32%">
        <p align="center">
         I know I'm a bayverse fan I know there's a lot of cons about the movie but I grew up with that movie but I personally don't think Optimus character got literally nuked there are some part yes but there's also other parts that makes it realistic for him to act especially with a lot of trauma. I do love Orion pax he's so silly and funny 
        <p align="center">
@@ -67,25 +66,33 @@
         <p align="center">
          <video src="https://github.com/user-attachments/assets/07ebc5c9-daf2-4f83-9d3c-397ad3d849ff"
        <p align="center">
-        I think I'm too tall for Optimus 
-       <p align="center">
         <img width="600"alt="1000026200" src="https://github.com/user-attachments/assets/48d649c2-2de6-4b63-a7ba-63003554b1a5" />
        <p align="center">
-        This headcanon omg I really do believe he is a jealous type but not in like possessive way or this morden tradition I like to imagine him he doesn't admit a lot of things especially through his teammates as their leader instead of saying it directly his body language his tone betrays him so much. I also think that it's more of protectiveness he is a prime it's kind of his nature to be a protector that made him a leader.For ruelia lore She has been one with his body for eons of years(asleep) after she was exiled on her planet and has no where to go but to Cybertron (ruelia enegry power is sunlight an alternative source from her home planet she can transfer that power to Optimus prime spark or energon to give him strength speed and agility) basically Optimus got used to being one with her for millions of years separation was something they both didn't like or not used to it once they arrive at earth that is where ruelia woke up there was some conflict and reflections of separation but they both managed at the end yet optimus cannot stand being away for too long or not in his sight Rueila Power is vulnerable once the deception knew about her species they will take her power and maybe even kill her  and she's not really a fighter Optimus does allow her to roam free with Cade/Sam to experience earth just not without him he's still very cautious especially when there's also bad humans
-       <p align="center">
+     I really do believe he is a jealous type but not in like possessive way or this morden tradition I like to imagine him he doesn't admit a lot of things especially through his teammates as their leader instead of saying it directly his body language his tone betrays him so much. I also think that it's more of protectiveness he is a prime it's kind of his nature to be a protector that made him a leader.For ruelia lore She has been one with his body for eons of years(asleep) after she was exiled on her planet and has no where to go but to Cybertron (ruelia enegry power is sunlight an alternative source from her home planet she can transfer that power to Optimus prime spark or energon to give him strength speed and agility) basically Optimus got used to being one with her for millions of years separation was something they both didn't like or not used to it once they arrive at earth that is where ruelia woke up there was some conflict and reflections of separation but they both managed at the end yet optimus cannot stand being away for too long or not in his sight Rueila Power is vulnerable once the deception knew about her species they will take her power and maybe even kill her  and she's not really a fighter Optimus does allow her to roam free with Cade/Sam to experience earth just not without him he's still very cautious especially when there's also bad humans
+  </td>
+      <td align="center" valign="middle" width="10%">
         <img width="400" alt="1000026186" src="https://github.com/user-attachments/assets/dd677770-f640-4183-88dd-f97d48b48a4e" />
     <p align="center">
      <img width="400" alt="72cf6eb431703a1af083ad46b9fde517" src="https://github.com/user-attachments/assets/f279290d-b57f-41ce-a651-4a43f5d343ff" />
      <p align="center">
 <img width="400" alt="7870979edb0e9a5a044cec312f7931d6" src="https://github.com/user-attachments/assets/a142f104-1972-4a50-b965-f18734f84c9b" />
   <p align="center">
-   I LOVE MY DARLING SM
-  <p align="center">
    <img width="500" alt="1000006294" src="https://github.com/user-attachments/assets/98597369-c69c-4064-b9d0-ff3c25bc3b04" />
       <p align="center"> ‎
     <img width="700" alt="JWAaqjHf" src="https://github.com/user-attachments/assets/75216d92-9cd5-4d30-87cf-f4970cb59acb" />
           <p align="center"> ‎
 <img width="400" alt="1000006223" src="https://github.com/user-attachments/assets/9e765dbc-c54a-4eb8-9c30-ef8ddc9052c1" />
+<br/><br/>
+        </a>
+      </td>
+    </tr>
+  </table>
+</div>
+
+
+
+
+           
 <div align="center">
 <table border="0"> 
     <tr/>
