@@ -4,6 +4,8 @@
     <td align="center" align="middle" width="32%">
        <p align="center">
      I'm a bayverse fan I know there's a lot of cons about the movie but I grew up with that movie but I personally don't think Optimus character got literally nuked there are some part yes but there's also other parts that makes it realistic for him to act especially with a lot of trauma. I do love Orion pax he's so silly and funny 
+         <p align="center">
+  <video src="https://github.com/user-attachments/assets/a5bf308e-9016-438d-9c05-742e2a8ca5fc">
        <p align="center">
        50 REASONS WHY I ABSOLUTELY ADORE OPTIMUS 
        <p align="center">
@@ -69,6 +71,9 @@
         <img width="600"alt="1000026200" src="https://github.com/user-attachments/assets/48d649c2-2de6-4b63-a7ba-63003554b1a5" />
        <p align="center">
      I really do believe he is a jealous type but not in like possessive way or this morden tradition I like to imagine him he doesn't admit a lot of things especially through his teammates as their leader instead of saying it directly his body language his tone betrays him so much. I also think that it's more of protectiveness he is a prime it's kind of his nature to be a protector that made him a leader.For ruelia lore She has been one with his body for eons of years(asleep) after she was exiled on her planet and has no where to go but to Cybertron (ruelia enegry power is sunlight an alternative source from her home planet she can transfer that power to Optimus prime spark or energon to give him strength speed and agility) basically Optimus got used to being one with her for millions of years separation was something they both didn't like or not used to it once they arrive at earth that is where ruelia woke up there was some conflict and reflections of separation but they both managed at the end yet optimus cannot stand being away for too long or not in his sight Rueila Power is vulnerable once the deception knew about her species they will take her power and maybe even kill her  and she's not really a fighter Optimus does allow her to roam free with Cade/Sam to experience earth just not without him he's still very cautious especially when there's also bad humans
+             <p align="center">
+   <video src="https://github.com/user-attachments/assets/e89d5d88-b7bf-4ffe-bebd-5279da055755">
+                   <p align="center">
   </td>
       <td align="center" valign="middle" width="10%">
           <img width="160" alt="pony-town-my body burns sm-boop-blinking-ponyplush-4x" src="https://github.com/user-attachments/assets/3a47a8ff-1419-4585-9f6b-eaa4f2e038a2" />
