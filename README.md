@@ -5,8 +5,6 @@
        <p align="center">
      I'm a bayverse fan I know there's a lot of cons about the movie but I grew up with that movie but I personally don't think Optimus character got literally nuked there are some part yes but there's also other parts that makes it realistic for him to act especially with a lot of trauma. I do love Orion pax he's so silly and funny 
          <p align="center">
-  <video src="https://github.com/user-attachments/assets/a5bf308e-9016-438d-9c05-742e2a8ca5fc">
-       <p align="center">
        50 REASONS WHY I ABSOLUTELY ADORE OPTIMUS 
        <p align="center">
         1. He always puts everyone else before himself.
