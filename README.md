@@ -1,4 +1,6 @@
-![](https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷)
+
+   <img width="100" src="https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷" alt = ![image]>
+</p>
  <div align="center">
 <table border="0"> 
     <td align="center" align="middle" width="32%">
