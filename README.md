@@ -4,8 +4,6 @@
     <td align="center" align="middle" width="32%">
        <p align="center">
           <video src="https://github.com/user-attachments/assets/29384ccd-72ec-4bfb-b305-3c6264d88ad5">
-          <p align="center">
-     I'm a bayverse fan I know there's a lot of cons about the movie but I grew up with that movie but I personally don't think Optimus character got literally nuked there are some part yes but there's also other parts that makes it realistic for him to act especially with a lot of trauma. I do love Orion pax he's so silly and funny 
          <p align="center">
        50 REASONS WHY I ABSOLUTELY ADORE OPTIMUS 
        <p align="center">
@@ -75,8 +73,9 @@
    <video src="https://github.com/user-attachments/assets/e89d5d88-b7bf-4ffe-bebd-5279da055755">
                    <p align="center">
   </td>
-      <td align="center" valign="middle" width="10%">
-          <img width="160" alt="pony-town-my body burns sm-boop-blinking-ponyplush-4x" src="https://github.com/user-attachments/assets/3a47a8ff-1419-4585-9f6b-eaa4f2e038a2" />
+      <td align="center" valign="middle" width="40%">
+ <br/><br/>
+<video src="https://github.com/user-attachments/assets/5fb4b604-06bf-4756-90fd-94bc2ba5291d">
            <br/><br/>
         <img width="400" alt="1000026186" src="https://github.com/user-attachments/assets/dd677770-f640-4183-88dd-f97d48b48a4e" />
  <br/><br/>
