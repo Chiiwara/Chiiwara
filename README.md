@@ -3,6 +3,8 @@
 <table border="0"> 
     <td align="center" align="middle" width="32%">
        <p align="center">
+          <video src="https://github.com/user-attachments/assets/29384ccd-72ec-4bfb-b305-3c6264d88ad5">
+          <p align="center">
      I'm a bayverse fan I know there's a lot of cons about the movie but I grew up with that movie but I personally don't think Optimus character got literally nuked there are some part yes but there's also other parts that makes it realistic for him to act especially with a lot of trauma. I do love Orion pax he's so silly and funny 
          <p align="center">
        50 REASONS WHY I ABSOLUTELY ADORE OPTIMUS 
