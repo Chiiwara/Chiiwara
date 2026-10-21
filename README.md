@@ -6,6 +6,8 @@
           <video src="https://github.com/user-attachments/assets/29384ccd-72ec-4bfb-b305-3c6264d88ad5">
              <p align="center">
              <video src="https://github.com/user-attachments/assets/5fb4b604-06bf-4756-90fd-94bc2ba5291d">
+                      <p align="center">
+                       I havent even talked about his love language as physical touch
          <p align="center">
        50 REASONS WHY I ABSOLUTELY ADORE OPTIMUS 
        <p align="center">
@@ -76,6 +78,10 @@
                    <p align="center">
   </td>
       <td align="center" valign="middle" width="20%">
+ <br/><br/>
+       <img width="300" alt="17ca8ee7fb5211e5a297676a0cc7c537" src="https://github.com/user-attachments/assets/050ae5c7-8989-4b56-8784-04bd03bd3fed" />
+ <br/><br/>
+       <img width="300" alt="6b48fabbcac0ac79b32397343836236b" src="https://github.com/user-attachments/assets/303cdbe2-b3f1-40cb-97f2-b3aa96fc4860" />
  <br/><br/>
         <img width="400" alt="1000026186" src="https://github.com/user-attachments/assets/dd677770-f640-4183-88dd-f97d48b48a4e" />
  <br/><br/>
