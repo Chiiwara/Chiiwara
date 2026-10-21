@@ -4,6 +4,8 @@
     <td align="center" align="middle" width="32%">
        <p align="center">
           <video src="https://github.com/user-attachments/assets/29384ccd-72ec-4bfb-b305-3c6264d88ad5">
+             <p align="center">
+             <video src="https://github.com/user-attachments/assets/5fb4b604-06bf-4756-90fd-94bc2ba5291d">
          <p align="center">
        50 REASONS WHY I ABSOLUTELY ADORE OPTIMUS 
        <p align="center">
@@ -73,10 +75,8 @@
    <video src="https://github.com/user-attachments/assets/e89d5d88-b7bf-4ffe-bebd-5279da055755">
                    <p align="center">
   </td>
-      <td align="center" valign="middle" width="40%">
+      <td align="center" valign="middle" width="20%">
  <br/><br/>
-<video src="https://github.com/user-attachments/assets/5fb4b604-06bf-4756-90fd-94bc2ba5291d">
-           <br/><br/>
         <img width="400" alt="1000026186" src="https://github.com/user-attachments/assets/dd677770-f640-4183-88dd-f97d48b48a4e" />
  <br/><br/>
      <img width="400" alt="72cf6eb431703a1af083ad46b9fde517" src="https://github.com/user-attachments/assets/f279290d-b57f-41ce-a651-4a43f5d343ff" />
