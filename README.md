@@ -1,8 +1,8 @@
 <img width="100" src="https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷" alt=![]>
 <p align="center">
-  @thequota's Mother ノ Optimus Prime Sparkmate
+  @thequota's Mother ノ Optimus Prime Sparkmate ( NonSharing / Heavy Selective Yume ) 
  <p align="center">
-  My son became my actual actual son mind blowing HELPPP i might draw them as a family soon but ofc human optimus bcs i cant...
+  My son became my actual actual son mind blowing i might draw them as a family soon but ofc human optimus bcs i cant...
 <p align="center">
  <img width="500" alt="1000006397" src="https://github.com/user-attachments/assets/38ab5a19-a2ac-4ef6-a275-c5192fcba3bf" />
  <div align="center">
