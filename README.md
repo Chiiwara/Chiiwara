@@ -1,11 +1,5 @@
 <img width="100" src="https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷" alt=![]>
 <p align="center">
-  @thequota's Mother ノ Optimus Prime Sparkmate ( NonSharing / Heavy Selective Yume ) 
-   <p align="center">
-     PLSSSSS RESALE IT I WANT MY OPTIMUS MLBB
- <p align="center">
- <img width="738" height="415" alt="images" src="https://github.com/user-attachments/assets/98e9a877-3348-450c-96f0-dbba23b51c8d" />
-<p align="center">
  <img width="500" alt="1000006397" src="https://github.com/user-attachments/assets/38ab5a19-a2ac-4ef6-a275-c5192fcba3bf" />
  <div align="center">
 <table border="0"> 
