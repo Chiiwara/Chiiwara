@@ -1,4 +1,8 @@
 <img width="100" src="https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷" alt=![]>
+  <p align="center">
+   <img width="300" alt="Screenshot_2026-10-31-16-07-49-927_com facebook orca-edit" src="https://github.com/user-attachments/assets/e19a49ff-a60c-4a82-9179-90bbf98f6ea4" />
+<p align="center">
+ WAAA WHEN YOUR COMMISSIONER BECOMES YOUR CLOSE FRIENDS WAAAAA ILY/P !!!!!
 <p align="center">
  <img width="500" alt="1000006397" src="https://github.com/user-attachments/assets/38ab5a19-a2ac-4ef6-a275-c5192fcba3bf" />
  <div align="center">
