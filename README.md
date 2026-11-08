@@ -1,10 +1,15 @@
 <img width="100" src="https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷" alt=![]>
 <p align="center">
  <img width="500" alt="1000006397" src="https://github.com/user-attachments/assets/38ab5a19-a2ac-4ef6-a275-c5192fcba3bf" />
- <div align="center">
+      <p align="center">
+        <img width="190" alt="pony-town-Optimus Prime NonShare ☄⭐-sit-blinking-ponyplush-4x" src="https://github.com/user-attachments/assets/60d3571e-12fc-43ac-955b-243908d4b580" />
+<img width="200" alt="pony-town-Optimus Sparkmate  c + h-sit-blinking-4x" src="https://github.com/user-attachments/assets/e0ca1697-a5e2-48e0-bb75-13ce0cbfa3ab" />
+            <p align="center">
+           <div align="center">
 <table border="0"> 
     <td align="center" align="middle" width="32%">
-          <p align="center">
+      "whenever you look at the stars, think of one of them as my soul"
+   <p align="center">
            i wanna talk about how i kin him sometimes or realizing that his actions might be similar to every situation i have been experiencing, The part that he never hold any grudges he hopes and he protect his loves one. As for me holding grudges was something i cant describe myself i cant hate someone for long because for me holding grudges hurts a lot and it builds up that angry instead of yelling on the wall that you chose to protect yourself with i chose to care for it that's how i processed to heal myself and a lot of my friends look up to me because of this and I'm actually very touched. I hope for someone to be better i stand up against myself against my rights and my friends rights but I'm also not perfect either all my friends are they can make mistakes i can make mistakes i hoped for the better but always lets go for better of both ( think of it as like Orion Pax and D16 ) i refused to let my hate emotions become the cold part of me instead it becomes my strongest will to protect and defend my friends. Whenever a situation occurred its always uncomfortable for me to become rude or harsh I want peace but i also learned they are different kind of peace, Not everyone has to be your friend, avoid conflict ,forgetting what had happened before. its boundary based peace you might realize one day that you don't need this actions.
        <p align="center">
           <video src="https://github.com/user-attachments/assets/29384ccd-72ec-4bfb-b305-3c6264d88ad5">
