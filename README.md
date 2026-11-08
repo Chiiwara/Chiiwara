@@ -2,8 +2,8 @@
 <p align="center">
  <img width="500" alt="1000006397" src="https://github.com/user-attachments/assets/38ab5a19-a2ac-4ef6-a275-c5192fcba3bf" />
       <p align="center">
-        <img width="190" alt="pony-town-Optimus Prime NonShare ☄⭐-sit-blinking-ponyplush-4x" src="https://github.com/user-attachments/assets/60d3571e-12fc-43ac-955b-243908d4b580" />
-<img width="200" alt="pony-town-Optimus Sparkmate  c + h-sit-blinking-4x" src="https://github.com/user-attachments/assets/e0ca1697-a5e2-48e0-bb75-13ce0cbfa3ab" />
+        <img width="160" alt="pony-town-Optimus Prime NonShare ☄⭐-sit-blinking-ponyplush-4x" src="https://github.com/user-attachments/assets/60d3571e-12fc-43ac-955b-243908d4b580" />
+<img width="180" alt="pony-town-Optimus Sparkmate  c + h-sit-blinking-4x" src="https://github.com/user-attachments/assets/e0ca1697-a5e2-48e0-bb75-13ce0cbfa3ab" />
             <p align="center">
            <div align="center">
 <table border="0"> 
