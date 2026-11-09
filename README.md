@@ -98,12 +98,13 @@
 <img width="400" alt="1000006223" src="https://github.com/user-attachments/assets/9e765dbc-c54a-4eb8-9c30-ef8ddc9052c1" />
   </td>
       <td align="center" valign="middle" width="50%">
-<br/><br/>      
-   <video src="https://github.com/user-attachments/assets/fc72d2ad-437a-4083-a08a-e1e9b4fb717">
-<br/><br/>
+ <p align="center">     
+   <video src="https://github.com/user-attachments/assets/b418a1d5-9f84-4621-a3dc-a894ed7cb968">
+ <p align="center">
 <img width="754" height="1024" alt="Screenshot_2026-11-09-21-24-50-469_com ss android ugc trill-edit" src="https://github.com/user-attachments/assets/5cf56109-c289-4792-a810-cae3981a6c1b" />
-    <br/><br/>   
+ <p align="center">
     i wanna yap about how nerdy miguel o'hara is
+   <p align="center">
         </a>
       </td>
     </tr>
