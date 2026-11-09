@@ -1,13 +1,13 @@
 <img width="100" src="https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷" alt=![]>
 <p align="center">
  <img width="500" alt="1000006397" src="https://github.com/user-attachments/assets/38ab5a19-a2ac-4ef6-a275-c5192fcba3bf" />
-      <p align="center">
-        <img width="160" alt="pony-town-Optimus Prime NonShare ☄⭐-sit-blinking-ponyplush-4x" src="https://github.com/user-attachments/assets/60d3571e-12fc-43ac-955b-243908d4b580" />
-<img width="170" alt="pony-town-Optimus Sparkmate  c + h-sit-blinking-4x" src="https://github.com/user-attachments/assets/e0ca1697-a5e2-48e0-bb75-13ce0cbfa3ab" />
             <p align="center">
            <div align="center">
 <table border="0"> 
-    <td align="center" align="middle" width="32%">
+    <td align="center" align="middle" width="50%">
+         <p align="center">
+        <img width="275" height="263" alt="Screenshot 2026-11-09 081119" src="https://github.com/user-attachments/assets/f740e004-9b99-4e1c-b932-1693809cf18d" />
+              <p align="center">
       "whenever you look at the stars, think of one of them as my soul"
    <p align="center">
            i wanna talk about how i kin him sometimes or realizing that his actions might be similar to every situation i have been experiencing, The part that he never hold any grudges he hopes and he protect his loves one. As for me holding grudges was something i cant describe myself i cant hate someone for long because for me holding grudges hurts a lot and it builds up that angry instead of yelling on the wall that you chose to protect yourself with i chose to care for it that's how i processed to heal myself and a lot of my friends look up to me because of this and I'm actually very touched. I hope for someone to be better i stand up against myself against my rights and my friends rights but I'm also not perfect either all my friends are they can make mistakes i can make mistakes i hoped for the better but always lets go for better of both ( think of it as like Orion Pax and D16 ) i refused to let my hate emotions become the cold part of me instead it becomes my strongest will to protect and defend my friends. Whenever a situation occurred its always uncomfortable for me to become rude or harsh I want peace but i also learned they are different kind of peace, Not everyone has to be your friend, avoid conflict ,forgetting what had happened before. its boundary based peace you might realize one day that you don't need this actions.
@@ -82,26 +82,28 @@
      I really do believe he is a jealous type but not in like possessive way or this morden tradition I like to imagine him he doesn't admit a lot of things especially through his teammates as their leader instead of saying it directly his body language his tone betrays him so much. I also think that it's more of protectiveness he is a prime it's kind of his nature to be a protector that made him a leader.For ruelia lore She has been one with his body for eons of years(asleep) after she was exiled on her planet and has no where to go but to Cybertron (ruelia enegry power is sunlight an alternative source from her home planet she can transfer that power to Optimus prime spark or energon to give him strength speed and agility) basically Optimus got used to being one with her for millions of years separation was something they both didn't like or not used to it once they arrive at earth that is where ruelia woke up there was some conflict and reflections of separation but they both managed at the end yet optimus cannot stand being away for too long or not in his sight Rueila Power is vulnerable once the deception knew about her species they will take her power and maybe even kill her  and she's not really a fighter Optimus does allow her to roam free with Cade/Sam to experience earth just not without him he's still very cautious especially when there's also bad humans
              <p align="center">
    <video src="https://github.com/user-attachments/assets/e89d5d88-b7bf-4ffe-bebd-5279da055755">
-                   <p align="center">
-  </td>
-      <td align="center" valign="middle" width="20%">
- <br/><br/>
-       <img width="300" alt="17ca8ee7fb5211e5a297676a0cc7c537" src="https://github.com/user-attachments/assets/050ae5c7-8989-4b56-8784-04bd03bd3fed" />
- <br/><br/>
+  <p align="center">
        <img width="300" alt="6b48fabbcac0ac79b32397343836236b" src="https://github.com/user-attachments/assets/303cdbe2-b3f1-40cb-97f2-b3aa96fc4860" />
- <br/><br/>
+  <p align="center">
         <img width="400" alt="1000026186" src="https://github.com/user-attachments/assets/dd677770-f640-4183-88dd-f97d48b48a4e" />
- <br/><br/>
+  <p align="center">
      <img width="400" alt="72cf6eb431703a1af083ad46b9fde517" src="https://github.com/user-attachments/assets/f279290d-b57f-41ce-a651-4a43f5d343ff" />
-  <br/><br/>
+  <p align="center">
 <img width="400" alt="7870979edb0e9a5a044cec312f7931d6" src="https://github.com/user-attachments/assets/a142f104-1972-4a50-b965-f18734f84c9b" />
-   <br/><br/>
+    <p align="center">
    <img width="500" alt="1000006294" src="https://github.com/user-attachments/assets/98597369-c69c-4064-b9d0-ff3c25bc3b04" />
-      <br/><br/>
+  <p align="center">
     <img width="700" alt="JWAaqjHf" src="https://github.com/user-attachments/assets/75216d92-9cd5-4d30-87cf-f4970cb59acb" />
-        <br/><br/>
+    <p align="center">
 <img width="400" alt="1000006223" src="https://github.com/user-attachments/assets/9e765dbc-c54a-4eb8-9c30-ef8ddc9052c1" />
+  </td>
+      <td align="center" valign="middle" width="50%">
+<br/><br/>      
+   <video src="https://github.com/user-attachments/assets/fc72d2ad-437a-4083-a08a-e1e9b4fb717">
 <br/><br/>
+<img width="754" height="1024" alt="Screenshot_2026-11-09-21-24-50-469_com ss android ugc trill-edit" src="https://github.com/user-attachments/assets/5cf56109-c289-4792-a810-cae3981a6c1b" />
+    <br/><br/>   
+    i wanna yap about how nerdy miguel o'hara is
         </a>
       </td>
     </tr>
