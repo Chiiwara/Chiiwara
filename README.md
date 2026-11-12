@@ -34,6 +34,10 @@
     <img width="200" alt="Screenshot_2026-11-12-16-36-12-691_com discord-edit" src="https://github.com/user-attachments/assets/a5bf5005-d688-4331-82b0-69fec80ff5b7" />
 <img width="176" height="163" alt="Screenshot 2026-11-12 040938" src="https://github.com/user-attachments/assets/131df0ab-d4ac-4719-831e-f116736b16a6" />
   <p align="center">
+                 <p align="center">
+                             <img width="274" alt="Screenshot 2026-11-12 040752" src="https://github.com/user-attachments/assets/31ec5a68-4260-402c-8c80-e434c574b2fa" />
+<img width="273" alt="Screenshot 2026-11-12 040830" src="https://github.com/user-attachments/assets/7c621385-c573-4059-98d2-2f765e48bb0e" />
+                                <p align="center">
   <img width="200" alt="Screenshot 2026-11-12 041008" src="https://github.com/user-attachments/assets/98ed5986-58f9-48f8-b942-ff4b72ddd756" />
                       <p align="center">
            <div align="center">
