@@ -4,7 +4,7 @@
                          <p align="center">
                 THANK YOU FOR EVERYONE WHO GREETED ME AND SHOWED ME GIFTS I LOVE YALL SO MUCH <33 MY 19TH WITH YOU GUYS AND MANY MORE 
                               <p align="center">
-                                          Honorable Greeting to Sexy being the first one seconds after Haru HELPP 
+                                          Honorable Greeting to Sexy being the first one seconds before Haru HELPP 
                                             <p align="center">
                     <img width="400" alt="Screenshot_2026-11-12-16-25-16-015_com ss android ugc trill-edit" src="https://github.com/user-attachments/assets/fa4abdbb-56bc-4fd0-96ed-0e337f4c52c3" />
                                                            <p align="center">
