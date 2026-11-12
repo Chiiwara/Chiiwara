@@ -1,5 +1,41 @@
 <img width="100" src="https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷" alt=![]>
             <p align="center">
+                        November 12 2026
+                         <p align="center">
+                THANK YOU FOR EVERYONE WHO GREETED ME AND SHOWED ME GIFTS I LOVE YALL SO MUCH <33 MY 19TH WITH YOU GUYS AND MANY MORE 
+                              <p align="center">
+                                          Honorable Greeting to Sexy being the first one seconds after Haru HELPP 
+                                            <p align="center">
+                    <img width="400" alt="Screenshot_2026-11-12-16-25-16-015_com ss android ugc trill-edit" src="https://github.com/user-attachments/assets/fa4abdbb-56bc-4fd0-96ed-0e337f4c52c3" />
+                                                           <p align="center">
+            HARUUU TYSM FOR STAYING UP LATE ILY AS MY FAMILYY 
+                                                                                 <p align="center">
+                         <img width="400" alt="Screenshot_2026-11-12-16-36-50-409_com discord-edit" src="https://github.com/user-attachments/assets/06b89fa3-1424-431f-83bb-9a2d22da028c" />
+     <img width="400" alt="Screenshot_2026-11-12-16-37-02-065_com discord-edit" src="https://github.com/user-attachments/assets/91a8da8b-6850-4435-9ab9-5126ada0dac4" />
+      <img width="500" alt="Untitled554_20261111225601" src="https://github.com/user-attachments/assets/b60fe74a-5413-4ed3-85c1-612275c03a6d" />                 <p align="center">
+                  Aoki will always be my best big bro thank you for being the best
+           <p align="center">
+                   <img width="600" alt="Screenshot_2026-11-12-16-34-26-561_com discord-edit" src="https://github.com/user-attachments/assets/994b7638-5b9e-41a7-b57c-8e473965a39b" />
+    <img width="400" alt="Screenshot_2026-11-12-16-34-46-869_com discord-edit" src="https://github.com/user-attachments/assets/214ca33e-4ec6-4228-9b3f-321995c8c546" />
+<img width="300" alt="Screenshot_2026-11-12-11-33-16-093_com instagram android-edit" src="https://github.com/user-attachments/assets/fd98704a-c798-4866-bf2e-7a8e46d14a00" />
+             <p align="center">
+                         MY LITTLE SISSY AND BROS + MY SON AND NEP FOREVER GUYS LOVE YALL SM
+                         <p align="center">
+                            <img width="472" height="768" alt="Screenshot_2026-11-12-16-33-06-044_com facebook orca-edit" src="https://github.com/user-attachments/assets/14fd391a-353b-4208-80ca-063f1f9e69ff" />
+   <img width="400" alt="Screenshot_2026-11-12-16-33-58-989_com facebook orca-edit" src="https://github.com/user-attachments/assets/06e19578-0239-479d-80d7-588a88b9ed24" />
+      <p align="center">
+                    <img width="448" alt="Screenshot_2026-11-12-16-33-35-562_com discord-edit" src="https://github.com/user-attachments/assets/7e455d2e-a82f-4a7a-b91f-acbc6842d46b" />
+<img width="300" alt="Screenshot_2026-11-12-16-33-45-275_com discord-edit" src="https://github.com/user-attachments/assets/d90d5b17-db01-4e97-b9c5-4f0ab2add154" />
+<img width="300" alt="Screenshot_2026-11-12-16-35-48-300_com discord-edit" src="https://github.com/user-attachments/assets/b841628e-71c8-420b-8e13-fb61835e972a" /<img width="300" alt="Screenshot_2026-11-12-16-36-12-691_com discord-edit" src="https://github.com/user-attachments/assets/cb41aed3-996c-47be-8449-d459fba53bd9" />
+<img width="200" alt="Screenshot_2026-11-12-16-35-28-809_com discord-edit" src="https://github.com/user-attachments/assets/cf7f9bff-d968-40bd-bb5f-ff3fd326a779" />
+<img width="200" alt="Screenshot_2026-11-12-16-35-57-609_com discord-edit" src="https://github.com/user-attachments/assets/471f7cce-1b95-4f20-ba0f-5dd0e23e2735" />
+<img width="200" alt="pony-town-hbd_2_chii__semiverb-boop-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/770cba08-c0b6-4ed2-8f11-72549fdf7e4d" />
+    <p align="center">
+    <img width="200" alt="Screenshot_2026-11-12-16-36-12-691_com discord-edit" src="https://github.com/user-attachments/assets/a5bf5005-d688-4331-82b0-69fec80ff5b7" />
+<img width="176" height="163" alt="Screenshot 2026-11-12 040938" src="https://github.com/user-attachments/assets/131df0ab-d4ac-4719-831e-f116736b16a6" />
+  <p align="center">
+  <img width="200" alt="Screenshot 2026-11-12 041008" src="https://github.com/user-attachments/assets/98ed5986-58f9-48f8-b942-ff4b72ddd756" />
+                      <p align="center">
            <div align="center">
 <table border="0"> 
     <td align="center" align="middle" width="50%">
