@@ -1,4 +1,6 @@
 <img width="100" src="https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷" alt=![]>
+<p align="center">
+            <img width="600" alt="1000006830" src="https://github.com/user-attachments/assets/fbd6a392-7392-4275-9181-2f896a02b29e" />
             <p align="center">
                         November 12 2026
                          <p align="center">
