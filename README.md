@@ -28,8 +28,6 @@
       <p align="center">
                     <img width="448" alt="Screenshot_2026-11-12-16-33-35-562_com discord-edit" src="https://github.com/user-attachments/assets/7e455d2e-a82f-4a7a-b91f-acbc6842d46b" />
 <img width="300" alt="Screenshot_2026-11-12-16-33-45-275_com discord-edit" src="https://github.com/user-attachments/assets/d90d5b17-db01-4e97-b9c5-4f0ab2add154" />
-<img width="300" alt="Screenshot_2026-11-12-16-35-48-300_com discord-edit" src="https://github.com/user-attachments/assets/b841628e-71c8-420b-8e13-fb61835e972a" /<img width="300" alt="Screenshot_2026-11-12-16-36-12-691_com discord-edit" src="https://github.com/user-attachments/assets/cb41aed3-996c-47be-8449-d459fba53bd9" />
-<img width="200" alt="Screenshot_2026-11-12-16-35-28-809_com discord-edit" src="https://github.com/user-attachments/assets/cf7f9bff-d968-40bd-bb5f-ff3fd326a779" />
 <img width="200" alt="Screenshot_2026-11-12-16-35-57-609_com discord-edit" src="https://github.com/user-attachments/assets/471f7cce-1b95-4f20-ba0f-5dd0e23e2735" />
 <img width="200" alt="pony-town-hbd_2_chii__semiverb-boop-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/770cba08-c0b6-4ed2-8f11-72549fdf7e4d" />
                       <p align="center">
