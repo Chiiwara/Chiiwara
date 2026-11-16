@@ -8,7 +8,7 @@
                               <p align="center">
                                           Honorable Greeting to Sexy being the first one seconds before Haru HELPP 
                                             <p align="center">
-                    <img width="400" alt="Screenshot_2026-11-12-16-25-16-015_com ss android ugc trill-edit" src="https://github.com/user-attachments/assets/fa4abdbb-56bc-4fd0-96ed-0e337f4c52c3" />
+                    <img width="200" alt="Screenshot_2026-11-12-16-25-16-015_com ss android ugc trill-edit" src="https://github.com/user-attachments/assets/fa4abdbb-56bc-4fd0-96ed-0e337f4c52c3" />
                                                            <p align="center">
             HARUUU TYSM FOR STAYING UP LATE ILY AS MY FAMILYY 
                                                                                  <p align="center">
@@ -32,15 +32,6 @@
 <img width="200" alt="Screenshot_2026-11-12-16-35-28-809_com discord-edit" src="https://github.com/user-attachments/assets/cf7f9bff-d968-40bd-bb5f-ff3fd326a779" />
 <img width="200" alt="Screenshot_2026-11-12-16-35-57-609_com discord-edit" src="https://github.com/user-attachments/assets/471f7cce-1b95-4f20-ba0f-5dd0e23e2735" />
 <img width="200" alt="pony-town-hbd_2_chii__semiverb-boop-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/770cba08-c0b6-4ed2-8f11-72549fdf7e4d" />
-    <p align="center">
-    <img width="200" alt="Screenshot_2026-11-12-16-36-12-691_com discord-edit" src="https://github.com/user-attachments/assets/a5bf5005-d688-4331-82b0-69fec80ff5b7" />
-<img width="176" height="163" alt="Screenshot 2026-11-12 040938" src="https://github.com/user-attachments/assets/131df0ab-d4ac-4719-831e-f116736b16a6" />
-  <p align="center">
-                 <p align="center">
-                             <img width="274" alt="Screenshot 2026-11-12 040752" src="https://github.com/user-attachments/assets/31ec5a68-4260-402c-8c80-e434c574b2fa" />
-<img width="273" alt="Screenshot 2026-11-12 040830" src="https://github.com/user-attachments/assets/7c621385-c573-4059-98d2-2f765e48bb0e" />
-                                <p align="center">
-  <img width="200" alt="Screenshot 2026-11-12 041008" src="https://github.com/user-attachments/assets/98ed5986-58f9-48f8-b942-ff4b72ddd756" />
                       <p align="center">
            <div align="center">
 <table border="0"> 
