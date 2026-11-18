@@ -1,6 +1,9 @@
 <img width="100" src="https://komarev.com/ghpvc/?username=Chiiwara&color=ffabdc&style=for-the-badge&label=🕷" alt=![]>
 <p align="center">
             <img width="600" alt="1000006830" src="https://github.com/user-attachments/assets/fbd6a392-7392-4275-9181-2f896a02b29e" />
+                   <p align="center">
+              <details>
+<summary>19th</summary>
             <p align="center">
                         November 12 2026
                          <p align="center">
@@ -30,6 +33,7 @@
 <img width="300" alt="Screenshot_2026-11-12-16-33-45-275_com discord-edit" src="https://github.com/user-attachments/assets/d90d5b17-db01-4e97-b9c5-4f0ab2add154" />
 <img width="200" alt="Screenshot_2026-11-12-16-35-57-609_com discord-edit" src="https://github.com/user-attachments/assets/471f7cce-1b95-4f20-ba0f-5dd0e23e2735" />
 <img width="200" alt="pony-town-hbd_2_chii__semiverb-boop-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/770cba08-c0b6-4ed2-8f11-72549fdf7e4d" />
+      </details>
                       <p align="center">
            <div align="center">
   <details>
