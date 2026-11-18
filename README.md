@@ -32,6 +32,8 @@
 <img width="200" alt="pony-town-hbd_2_chii__semiverb-boop-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/770cba08-c0b6-4ed2-8f11-72549fdf7e4d" />
                       <p align="center">
            <div align="center">
+  <details>
+<summary> 🤖💫🕷️</summary>
 <table border="0"> 
     <td align="center" align="middle" width="50%">
          <p align="center">
@@ -129,7 +131,7 @@
     </tr>
   </table>
 </div>
-
+   </details>
 
 
 
